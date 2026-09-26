@@ -1,3 +1,3 @@
 Hello! 👋
 
-quite pixilated, don't you think? 
+Lets let the static flow!
